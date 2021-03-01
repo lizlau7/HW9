@@ -1,1 +1,0 @@
-Liz LauNew York Giants
